@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Simp](https://obey-me.fandom.com/wiki/Satan)
